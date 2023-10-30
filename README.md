@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @idoticbutter
+- 👀 I’m interested in har har har
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on fucking nothing
